@@ -8,15 +8,16 @@
     </p>
 <table>
   <tr>
-    <td> 
+    <td width="60%" valign="top"> 
 <p>    : minor +16  ݁  GMT+2/+3</p>  
 <p>    : Mutogender  ݁  Bi  ݁ Gynosexual  ݁  Cupidoromantic </p>
 <p>    : He/his/himself   ݁   it/it's/itself <ins>NO</ins> she/they </p>
 <p>    : 27.   October </p>
 <p>    : taken by my Wifesband <3</p>
-<p>    : 461  ݁  ISFP</p>
-<p>    : DNI no matter what on 3. November <ins>(silent moment for someone)</ins></p> </td>
-  <td><img src="https://64.media.tumblr.com/ae43d5e275a9533acf2ba96ac99e29e2/96f9875557bb8f22-cb/s1280x1920/0f838eec165a586cb08ce4a7543903740595dc79.pnj"
+<p>    : 461  ݁  ISFP</p></td>
+  </td>
+  <td width="40%" valign="top">
+  <img src="https://64.media.tumblr.com/ae43d5e275a9533acf2ba96ac99e29e2/96f9875557bb8f22-cb/s1280x1920/0f838eec165a586cb08ce4a7543903740595dc79.pnj" width="250">
   </td>
   </tr>
 </table>
