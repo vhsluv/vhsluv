@@ -10,8 +10,8 @@
     <td width="60%" valign="top"> 
 <p> HELLO! im <ins>Ray!</ins> Born on <ins>27th October!</ins> Im <ins>mutogender, gynosexual, bi and cupidoromantic</ins>!! I use <ins>he/him</ins>/himself and <ins>it/its</ins>/itself!! I don't want to be adressed as she/her or they/them! <ins>+16 GMT+3/+2 i am ISFP / 461</ins> ! and <ins>taken</ins> by my wonderful wifesband ! dont talk to me on the <ins>3rd Nov!</ins> it's a silent day. <ins>I need tonetags!</ins> </p> </td>
   </td>
-  <td width="40%" valign="top">
-  <img src="https://64.media.tumblr.com/39062bdf3a547742796603c39ce679b8/7f5005fe280421ad-1e/s2048x3072/f5010018844e21539330977ae521690748337bf1.pnj" width="600" height="185">
-  </td>
   </tr>
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/ea00254c65fb7bbecf30aefa1156ab68/fe2a5d1c522f549f-84/s1280x1920/44b4bf409b35e06cd7571f030b1935f5c16a95c7.pnj">
 <p> this is still work in progress </p>
