@@ -10,12 +10,13 @@
     </p>
 <table>
   <tr>
-    <td> ★    --    minor +16  //  GMT+2/+3  
-<p>★    --    Mutogender  //  Bisexual  // Gynosexual  //  Cupidoromantic </p>
-<p>★    --    He/his/himself   //   it/it's/itself NO she/they </p>
-<p>★    --    27.   October </p>
-<p>★    --    taken by my Wifesband <3</p>
-<p>★    --    461  //  ISFP</p>
-<p>★    --   DNI no matter what on 3. November __(silent moment for someone)__</p> </td>
+    <td> 
+<p>゛    ───   : minor +16  //  GMT+2/+3</p>  
+<p>゛    ───   : Mutogender  //  Bisexual  // Gynosexual  //  Cupidoromantic </p>
+<p>゛    ───   : He/his/himself   //   it/it's/itself NO she/they </p>
+<p>゛    ───   : 27.   October </p>
+<p>゛    ───   : taken by my Wifesband <3</p>
+<p>゛    ───   : 461  //  ISFP</p>
+<p>゛    ───   : DNI no matter what on 3. November __(silent moment for someone)__</p> </td>
   </tr>
 </table>
