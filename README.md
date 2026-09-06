@@ -16,6 +16,7 @@
   <img src="https://64.media.tumblr.com/ea00254c65fb7bbecf30aefa1156ab68/fe2a5d1c522f549f-84/s1280x1920/44b4bf409b35e06cd7571f030b1935f5c16a95c7.pnj">
   <img src="https://64.media.tumblr.com/3dd56980e4b8d0ddb9c5759aeac8a73f/d5ebaea15109c6f0-8d/s500x750/3ecbf810fca8e9a75d9fa68ea214e3e442abea19.pnj">
 
+
 <p> My favorite people are <ins>Sena, Jairo Kei, Kirby and riku!</ins> Trio's is <ins>zizzle with snickerz!</ins> and <ins>Aiden with Yeo</ins>. I am inside FANDOMS like <ins>TADC, FNAF. MC Phighting. MHA. KNY, gacha, creepypasta</ins> and mainly <ins>MLP & FS!!</ins>  My hobbies are <ins>writing, decorating and artcrafts!!</ins> My styles are <ins>y2k, github alt grunge and sometimes soft!</ins> My favorite foods are <ins>sushi, dumplings. Olive salad(the rom ver)!</ins> And my favorite games is <ins>Forsaken. Pony town</ins> and MAINLY <ins>Adopt me!</ins> 
 </p> 
 
